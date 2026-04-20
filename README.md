@@ -1,1 +1,0 @@
-# Kykhtiuk_Illia_16_Task
